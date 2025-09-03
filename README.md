@@ -1,1 +1,0 @@
-# labs-open-ymnavfka
